@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **open source**
 
-- 📫 How to reach me **rajsakshi463@gmail.com**
+- 📫 How to reach me **sakshiraj473@gmail.com**
 
 - ⚡ Fun fact **Being Sarcastic is a good thing**
 
